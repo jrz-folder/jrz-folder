@@ -1,4 +1,4 @@
-### Hey there! 👋 I'm Ryan (a.k.a Joseph Edward Sutanto)
+### Hey there! 👋 I'm Ryan (a.k.a Joseph Edward)
 
 🚀 **About Me:**  
 - 🏫 Student at **Petra 5 Senior High School**
